@@ -1,4 +1,4 @@
-# 🇮🇳 Cyber Commando Aptitude Test – Martyrs' Day Edition 🇮🇳 By Crypto Forensic Technology
+# Cyber Commando Aptitude Test – Martyrs' Day Edition 🇮🇳 By Crypto Forensic Technology
 
 🔥 **Think Fast. Act Smart. Prove Your Mettle!** 🔥
 
