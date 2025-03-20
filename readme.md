@@ -40,6 +40,7 @@ To participate effectively in the event, ensure you are familiar with:
 - 👤 **Khushi Barole:** +91 87660 56991
 
 🔥 **Step up, take the challenge, and prove your skills!** 🔥
-   # **Crypto Forensic Technology**
+  
 ---
 💪 **Think Fast. Act Smart. Conquer the Cyber Battlefield!** 🚀
+ ### **Crypto Forensic Technology**
