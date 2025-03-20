@@ -1,0 +1,5 @@
+Decrypt the given ciphertext.
+
+Key:- 4
+
+CieFonra}Tgggt!{_!
