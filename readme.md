@@ -37,7 +37,6 @@ To participate effectively in the event, ensure you are familiar with:
 
 ## 📢 Contact & Queries
 - 👤 **Aishwary Gathe:** +91 99600 63007
-- 👤 **Khushi Barole:** +91 87660 56991
 
 🔥 **Step up, take the challenge, and prove your skills!** 🔥
   
