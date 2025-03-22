@@ -1,5 +1,3 @@
 Decrypt the given ciphertext.
 
-6 ?
-
 ILZ{Luatj_Znk_Loxyz_Lrgm}
